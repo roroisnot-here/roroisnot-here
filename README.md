@@ -21,7 +21,7 @@ Bilingual translation works (Chinese to English), including literary fragments, 
 
 ## My Learning & Skills
 - Academic Abilities: Proficient in English academic reading, critical thinking, and academic essay writing; familiar with literary analysis methods and linguistic basic theories.
-- Language Skills: IELTS 7.0(Listening 7.5, Reading 7，0, Writing 6.5, Speaking 7.5; fluent in bilingual communication and translation.
+- Language Skills: IELTS 7.0(Listening 7.5, Reading 7.0, Writing 6.5, Speaking 7.5; fluent in bilingual communication and translation.
 - Supplementary Skills: Experience in English speech, debate, and book club activities; good at sorting out academic notes and summarizing learning experience.
 
 ## Application Direction
